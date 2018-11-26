@@ -1,0 +1,1 @@
+Chris Bruce is an award winning product and technology leader.  With a strong background in both product and engineering, he has served on the founding teams of several venture-backed startups with exits to Electronic Arts and Mattel.
